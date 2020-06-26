@@ -16,3 +16,6 @@ leger mit Jeans und Pulli.
 * Wurde Bürgermeister vom Auenland
 
 > Geben ist seliger als Nehmen
+
+
+<img src="https://www.pexels.com/de-de/foto/draussen-draussen-farben-fashion-2896840"/>
