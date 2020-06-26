@@ -14,3 +14,5 @@ leger mit Jeans und Pulli.
 * Hat sich überwunden und die Hübscheste im Auenland erobert
 * Hat 13 Kinder
 * Wurde Bürgermeister vom Auenland
+
+> Geben ist seliger als Nehmen
